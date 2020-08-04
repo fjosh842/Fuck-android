@@ -1,0 +1,2 @@
+# Fuck-android
+Fuxk android 
